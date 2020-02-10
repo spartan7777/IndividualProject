@@ -11,7 +11,7 @@ Started documenting the project plan
 
 Struggles: 
 I have a good idea of what I am going to do for the project. My struggles continue to be internal. I am not sure why I feel the way I do, but I need to work on some more Java so that my confidence can be where I feel I need it to be. A lot of this could be nervousness as I get ready to enter the IT world and cease being a student. A lot of this is probably from the fact that I see professional at work all day and I cannot see them as ever have been where I am a little insecure, and new to all of this. I guess I need some different role models... 
-Bottom line, I need to work on this insecurity before it follow me throughout the semester. 
+Bottom line, I need to work on this insecurity before it follows me throughout the semester. 
 
 I believe I have a solid idea for the individual project, and will just need to discuss it with the instructor to see if I can make it work. Hopefully my fears will not paralyze me once if becomes time to begin work on it. 
 
